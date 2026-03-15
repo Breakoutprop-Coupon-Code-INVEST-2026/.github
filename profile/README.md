@@ -33,7 +33,7 @@ Once funded, traders enjoy generous capital allocations, highly competitive prof
 1. Visit [Breakout Prop](https://breakoutprop.com)
 2. Choose your account size
 3. Enter code **INVEST** at checkout
-4. Get **2% OFF** instantly
+4. Get **22% OFF** instantly
 5. Begin your funded trading journey
 
 [![Breakout Prop Discount](https://img.shields.io/badge/Coupon%20Code-INVEST-green)](https://breakoutprop.com)

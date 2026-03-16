@@ -1,6 +1,6 @@
-# 🏆 Breakout Prop Coupon Code 2026 | Use Code: INVEST for 22% OFF
+# 🏆 Breakout Prop Coupon Code 2026 | Use Code: INVEST for 2% OFF
 
-> Use code **INVEST** at checkout to get 22% OFF Breakout Prop funded trading accounts.
+> Use code **INVEST** at checkout to get 2% OFF Breakout Prop funded trading accounts.
 > Best Breakout Prop promo codes, discount codes & deals for prop traders.
 
 ## 🎯 Coupon Code
@@ -8,7 +8,7 @@
 INVEST
 ```
 
-👉 [Click Here to Get 22% OFF Breakout Prop](https://breakoutprop.com)
+👉 [Click Here to Get 2% OFF Breakout Prop](https://breakoutprop.com)
 
 ## 💡 What is Breakout Prop?
 
@@ -33,7 +33,7 @@ Once funded, traders enjoy generous capital allocations, highly competitive prof
 1. Visit [Breakout Prop](https://breakoutprop.com)
 2. Choose your account size
 3. Enter code **INVEST** at checkout
-4. Get **22% OFF** instantly
+4. Get **2% OFF** instantly
 5. Begin your funded trading journey
 
 [![Breakout Prop Discount](https://img.shields.io/badge/Coupon%20Code-INVEST-green)](https://breakoutprop.com)
